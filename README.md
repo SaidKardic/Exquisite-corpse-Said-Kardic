@@ -6,3 +6,4 @@ He turns his head and sees a human-size Duck!
 -Oh, no! -- says the man, -Why are you so big? 
 The Duck flutters its wings and is getting closer... 
 
+Then bla bla bla
