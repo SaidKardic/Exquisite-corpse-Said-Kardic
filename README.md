@@ -1,4 +1,3 @@
 # A man walks in a bar..
 
-As he sits down, he looks up and notices a beautiful woman across the bar.
-
+after a long day at work and orders a drink. As he sits there, mulling over his day, he hears a high-pitched voice say, "That shirt looks great on you!" 
